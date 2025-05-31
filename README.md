@@ -23,7 +23,7 @@ With MahfLeads, you can:
 
 🧠 Ideal for marketers, freelancers, and local business researchers.
 
-➡️ [Click here to download the app](#)
+➡️ [Click here to download the app](#https://mahf-leads.pages.dev/download)
 
 ---
 
